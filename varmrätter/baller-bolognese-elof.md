@@ -1,17 +1,17 @@
 En billig bolognese med inte så mycket kött så man sparar på plånboken och miljön!
 
-2 Gula lökar
-4-6 Morötter (ca 400g)
-1 Palsternacka i lagom storlek
-1 Fjärdedels rotselleri (ca 200g)
-2 Paket tärnad bacon (ca 200g)
-Nötfärs, 250g
-Tomatpuré, 3msk
-1 Burk skalade tomater (400g)
-500ml Köttbuljong
-200ml Rött vin (billigt funkar)
-Paprikapulver (ca 1msk)
-Cayennepeppar (ca 0.5tsk)
+* 2 Gula lökar
+* 4-6 Morötter (ca 400g)
+* 1 Palsternacka i lagom storlek
+* 1 Fjärdedels rotselleri (ca 200g)
+* 2 Paket tärnad bacon (ca 200g)
+* Nötfärs, 250g
+* Tomatpuré, 3msk
+* 1 Burk skalade tomater (400g)
+* 500ml Köttbuljong
+* 200ml Rött vin (billigt funkar)
+* Paprikapulver (ca 1msk)
+* Cayennepeppar (ca 0.5tsk)
 
 1. Skala och hacka lök fint
 2. Skala och tärna morötter, rotselleri och palsternacka i ca 0.5cm^3-bitar

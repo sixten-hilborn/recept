@@ -1,7 +1,7 @@
-~20g smör
-~2 mks mjöl
-~0,5 liter mjölk
-muskotnöt (mald)
+* ~20g smör
+* ~2 mks mjöl
+* ~0,5 liter mjölk
+* muskotnöt (mald)
 
 1. smält smöret
 2. vispa ner mjöl, allt ska blanda sig till en ganska fuktig smet (annars är det för lite smör)
