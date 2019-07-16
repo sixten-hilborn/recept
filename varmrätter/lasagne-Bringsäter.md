@@ -1,6 +1,7 @@
-allt som behövs för bechamelsås a la Bringsäter (fast ungefär 3ggr så mycket)
-allt som behövs för köttfärsås a la Bringsäter
-1 pkt lasagneplattor
+allt som behövs för [bechamelsås a la Bringsäter](../såser/bechamelsås-Bringsäter.md) (fast ungefär 3ggr så mycket)
+allt som behövs för [köttfärsås a la Bringsäter](köttfärssås-Bringsäter.md)
+
+* 1 pkt lasagneplattor
 
 1. sätt ugnen på 200 grader celsius
 2-3. gör köttfärsås a la Bringsäter

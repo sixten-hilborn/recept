@@ -1,7 +1,7 @@
-mycket potatis
-50g smör
-1 dl mjölk
-knorr grillkrydda
+* mycket potatis
+* 50g smör
+* 1 dl mjölk
+* knorr grillkrydda
 
 1. skala potatis
 2. koka potatis tills den är mjuk rakt igenom

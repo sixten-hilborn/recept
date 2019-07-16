@@ -1,23 +1,23 @@
-1-2 gula lökar
-1 stor färsk broccoli
-ca 1/4 våtkålshuvud
-1 tumme-size färsk ingefära
-4 vitlöksklyftor
-1 stor paprika av valfri färg
-1 röd chilifrukt av valfri styrka (starkt är gott)
-2 kycklingbröst, frysta eller färska
-1 burk kokosmjölk
-1 lime
+* 1-2 gula lökar
+* 1 stor färsk broccoli
+* ca 1/4 våtkålshuvud
+* 1 tumme-size färsk ingefära
+* 4 vitlöksklyftor
+* 1 stor paprika av valfri färg
+* 1 röd chilifrukt av valfri styrka (starkt är gott)
+* 2 kycklingbröst, frysta eller färska
+* 1 burk kokosmjölk
+* 1 lime
 
 såser efter smak:
-ostronsås
-soja (kikkoman!)
-chilisås om du vill
+* ostronsås
+* soja (kikkoman!)
+* chilisås om du vill
 
 extrapoäng för fancy:
-2 ägg (fräs tillsammans med kyckling)
-krossade jordnötter (häll på sist av allt)
-skalade räkor (häll på sist av allt)
+* 2 ägg (fräs tillsammans med kyckling)
+* krossade jordnötter (häll på sist av allt)
+* skalade räkor (häll på sist av allt)
 
 1. plocka fram en skål att hälla kryddor i
 1. skala och riv ingefära, häll i kryddskål
